@@ -5,5 +5,5 @@ Selama PKL di Sukajadi, siswa TKJ juga mendapat kesempatan untuk mendalami konfi
 
 Selain fokus pada teknis komputer, tempat PKL di Sukajadi juga menekankan pentingnya keamanan data dan jaringan. Monitoring jaringan internet dilakukan untuk memastikan semua perangkat dapat terhubung dengan stabil dan aman. Siswa juga diajarkan cara setting router dan switch, yang merupakan komponen penting dalam membangun jaringan komputer. Dengan pengalaman magang TKJ di Sukajadi, siswa tidak hanya meningkatkan keterampilan teknis, tetapi juga mengasah kemampuan kerja sama tim dan komunikasi yang diperlukan di dunia kerja. Tempat PKL di Sukajadi benar-benar memberikan kesempatan luar biasa bagi siswa TKJ untuk berkembang dan siap menghadapi tantangan di bidang teknologi informasi.
 https://tempatpklsiswabandungbarat.blogspot.com/
-https://tempatpklsiswabandungbarat.blogspot.com/2024/12/085624371576praktik-kerja-lapangan.html
+https://tempatpklsiswabandungbarat.blogspot.com/2024/12/085624371576perusahaan-untuk-pkl.html
 https://youtube.com/shorts/yxjaKjt-XEM?feature=share
